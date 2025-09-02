@@ -1,7 +1,7 @@
 # Oi, sou Andre Ryan, como você está?
 ## General-Sampaio
 
-## Essa é uma das linguas que estou aprimorando e crescendo!!
+## Essa é uma das linguas que estou aprimorando!!
 
 <br>
 <div>
