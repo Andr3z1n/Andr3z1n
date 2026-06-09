@@ -1,5 +1,5 @@
 # Eai mano, como você vai?
-##MEu nome é Andre Ryan.
+##Meu nome é Andre Ryan.
 ## Gosto de trabalhar lavando carro e moto
 #Just do Good!
 # Minhas Redes Sociais Abaixo:
